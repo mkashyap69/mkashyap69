@@ -44,11 +44,6 @@
 [instagram]: https://www.instagram.com/manishkashyapa/
 [linkedin]: https://www.linkedin.com/in/manish-kumar-829023128/
 
-<br />
-<br />
 
----
-
-                                                                            ❤️❤️❤️
 
                                                               
